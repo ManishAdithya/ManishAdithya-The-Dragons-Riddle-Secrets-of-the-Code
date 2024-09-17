@@ -1,1 +1,1 @@
-# ManishAdithya-The-Dragons-Riddle-Secrets-of-the-Code
+# The-Dragons-Riddle-Secrets-of-the-Code
